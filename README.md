@@ -64,7 +64,7 @@ For any questions or further information about the project, please contact:
 
 **[Lakshya Batra]**  
 - Email: [batralakshya625@gmail.com](mailto:batralakshya625@gmail.com)
-- LinkedIn: [Your LinkedIn Profile](https://linkedin.com/in/yourprofile)
+- LinkedIn: [Lakshya Batra]([https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/lakshya-batra-827356226/))
 
 ---
 
